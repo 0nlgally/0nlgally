@@ -52,3 +52,6 @@ __________________
 • Please int me! I'm cool! I have a good humor, pls🥺. 
 
 • THANK YOU FOR READING AND UNDERSTANDING!!!. 💌
+
+<img src="5bb216ec-907d-4d6b-8ff3-57d3c9d60afb.gif" alt="Alt text" width="500" />
+
