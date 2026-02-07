@@ -5,7 +5,7 @@
 
    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=ccca89&width=435&lines=%22Let's+go+get+ice+cream!%22;%22I'm+loving+this+treasure+hunt!%22;%22My+hat!+No%2C+my+skirt!%22" alt="Typing SVG" /></a>
 
-# ⚠︎⚠︎: Do NOT screenshot and post my skins on Pinterest or other apps without my permission. 
+# ⚠︎: Do NOT screenshot and post my skins on Pinterest or other apps without my permission. Just in case. 
 _____________________________________
 ***• HI! Before you interact with me, please read about me. ♡**
 # •.:°❀×═════════×❀°:.
