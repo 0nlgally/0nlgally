@@ -28,6 +28,7 @@ _____________________________________
 14. I am 13y.
 15. Bday: JULY 30
 16. Feel free to c*h me if you are not in the mood or like something is bothering you, I love comforting people by making them feel safe with cuddles!
+17. INFP
 _____
 # INT. ✔
 
