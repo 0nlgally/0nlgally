@@ -29,6 +29,7 @@ _____________________________________
 15. Bday: JULY 30
 16. Feel free to c*h me if you are not in the mood or like something is bothering you, I love comforting people by making them feel safe with cuddles!
 17. INFP
+18. ALSO, interact with me first, don't just automatically send me friend request. Gonna observe you🥰. 
 _____
 # INT. ✔
 
