@@ -35,7 +35,7 @@ _____________________________________
 21. Fell asleep immediately, so, if I took longer to respond of one of you're chats, that's me, deadass sleeping. Honk shoo mimimi.
 22. I'm "dumb" by the way. I love people calling me that so much cuz it's a fact.
 23. I'm... clumsy...
-24. So annoying, I hope you won't hurt me. 
+24. Annoying. I know
 _____
 # INT. ✔
 
@@ -45,7 +45,7 @@ _____
 3. 12y+ above. 
 4. Yao or Yuri. 
 5. S3x jokes or dirty jokes(For fun please.) 
-6. Sure, I allowed **furries** but PLEASE, in a positive way! 
+6. Sure, I allow **furries** but PLEASE, in a positive way! Don't feel weird. 
 _____
 # DNI. ✘
 
