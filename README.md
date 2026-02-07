@@ -24,12 +24,18 @@ _____________________________________
 10. I suddenly shift to my emotional gang sometimes, **so don't expect me to be dry.** But if you really feel hurt because I act cold, i'll try to keep up my tone, don't ever though about that 'I found you annoying' or something like that. And if i really don't want to and it made you feel weird, please I'm just having a bad day, but Ill try not to break our friendship by a simple mistake. 
 11. Favorite ships from UT is GENO and REAPER, also Ink And Error. —     • From GI, I don't think so, maybe Nefer and Lauma.
 12. I easily get anxious of you, so please be honest with me.
-13. I am very shy and awkward at first, but I will be interesting and energetic once you get to know me. 
+13. I am very shy and awkward at first, but I will be interested and energetic once you get to know me. 
 14. I am 13y.
 15. Bday: JULY 30
 16. Feel free to c*h me if you are not in the mood or like something is bothering you, I love comforting people by making them feel safe with cuddles!
 17. INFP
-18. ALSO, interact with me first, don't just automatically send me friend request. Gonna observe you🥰. 
+18. ALSO, interact with me first, don't just automatically send me friend request. Gonna observe you🥰.
+19. Favorite songs this far: My girl-Isabel Larosa, Love you from afar, love wave to earth, Sienna-the marias, Stereo love, Super phsyco love, Hopelessly Devoted, Golden Brown, Can we hug now, Velvet ring and one of Deltarune soundtracks.
+20. Not an OUTDOOR person so bad😭.
+21. Fell asleep immediately, so, if I took longer to respond of one of you're chats, that's me, deadass sleeping. Honk shoo mimimi.
+22. I'm "dumb" by the way. I love people calling me that so much cuz it's a fact.
+23. I'm... clumsy...
+24. So annoying, I hope you won't hurt me. 
 _____
 # INT. ✔
 
