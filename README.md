@@ -11,7 +11,7 @@ _____________________________________
 # •.:°❀×═════════×❀°:.
 
 1. I am sentimental or **"emotional"**. 
-2. Loyal. (Trust me, I won't ditch you.) 
+2. Loyal. (Trust.) 
 3. Ambivert or both **Introvert** and **Extrovert**. 
 4. Bisexual, Lesbian and Aorace. 
 5. Loves to draw!
