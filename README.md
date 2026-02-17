@@ -29,13 +29,13 @@ _____________________________________
 15. Bday: JULY 30
 16. Feel free to c*h me if you are not in the mood or like something is bothering you, I love comforting people by making them feel safe with cuddles!
 17. INFP
-18. ALSO, interact with me first, don't just automatically send me friend request. Gonna observe you🥰.
+18. ALSO, interact with me first, don't just automatically send me friend request, ok?
 19. Favorite songs this far: My girl-Isabel Larosa, Love you from afar, love wave to earth, Sienna-the marias, Stereo love, Super phsyco love, Hopelessly Devoted, Golden Brown, Can we hug now, Velvet ring and one of Deltarune soundtracks.
-20. Not an OUTDOOR person so bad😭.
+20. Not an OUTDOOR person.
 21. Fell asleep immediately, so, if I took longer to respond of one of you're chats, that's me, deadass sleeping. Honk shoo mimimi.
 22. I'm "dumb" by the way. I love people calling me that so much cuz it's a fact.
-23. I'm... clumsy...
-24. Annoying. I know
+23. I'm...Clumsy...
+24. Annoying, just tell me where to be quiet. 
 _____
 # INT. ✔
 
@@ -63,9 +63,9 @@ _____
 
 __________________
 ![](https://komarev.com/ghpvc/?username=Y0rgall&color=ccca89)
-• Please int me! I'm cool! I have a good humor, pls🥺. 
+• Please int me! I'm cool! pls🥺. 
 
-• THANK YOU FOR READING!!!. 💌
+• THANK YOU FOR VIEWING MY PFP!!!. 💌
 
 <img src="5bb216ec-907d-4d6b-8ff3-57d3c9d60afb.gif" alt="Alt text" width="500" />
 
