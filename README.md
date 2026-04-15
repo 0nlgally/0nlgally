@@ -1,9 +1,32 @@
 <p align="center">
   WELCOME TO MY GITHUB!!! 
   <p align="center">
-  <img src="Untitled163_20260110162124.png" alt="Alt text" width="200"/>
+  
 
-   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=ccca89&width=435&lines=%22Let's+go+get+ice+cream!%22;%22I'm+loving+this+treasure+hunt!%22;%22My+hat!+No%2C+my+skirt!%22" alt="Typing SVG" /></a>
+   <p align="center">
+  ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
+
+
+</p>
+
+<p align="center">
+  <img src="https://github.com/0nlgally/0nlgally/blob/4ca7ebcedf3a482bc6aa0af615bb36fd0fc58103/Untitled28_20260416031746.png" alt="Description">
+</p>
+
+<p align="center">
+  ✧─── ･ ｡ﾟ★: *.✦ .* :★. ───✧
+
+
+</p>
+
+
+
+<p align="center">
+⊹ ིྀ »»——> 𝑪𝑯𝑶𝑪𝑶&𝑷𝑨𝑰𝑵𝑻  <——««  ིྀ⊹
+</p>
+
+
+
 
 # ⚠︎: Do NOT screenshot and post my skins on Pinterest or other apps without my permission. Just in case. 
 _____________________________________
