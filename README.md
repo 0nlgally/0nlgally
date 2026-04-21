@@ -68,9 +68,8 @@ _____
 3. 12y+ above. 
 4. Yao or Yuri. 
 5. S3x jokes or dirty jokes(For fun please.) 
-6. Sure, I allow **furries** but PLEASE, in a positive way! Don't feel weird.
-7. Artist people!!
-8. Sensitive or problematic (I love giving you support and solution for it💗.) 
+6. Artist people!!
+7. Sensitive or problematic (I love giving you support and solution for it💗.) 
 _____
 # DNI. ✘
 
@@ -82,8 +81,7 @@ _____
 6. P3do. 
 7. Over 20+. 
 8. Frans shippers.
-9. Therian or Anti-Therian
-10. Externalizing Blame 
+9. Externalizing Blame 
 <p align="center">
 
   ∘₊✧──────✧₊∘
