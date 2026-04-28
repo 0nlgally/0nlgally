@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/0nlgally/0nlgally/blob/4ca7ebcedf3a482bc6aa0af615bb36fd0fc58103/Untitled28_20260416031746.png" alt="Description">
+  <img src="https://github.com/0nlgally/0nlgally/blob/b04a6213a55431460ce658ed89bb7106550cc2a8/Untitled49_20260428173345.png" alt="Description">
 </p>
 
 
@@ -20,11 +20,11 @@
 
 
 <p align="center">
-⊹ ིྀ »»——> 𝑪𝑯𝑶𝑪𝑶&𝑷𝑨𝑰𝑵𝑻  <——««  ིྀ⊹
+»»——>  𝘾𝙝𝙤𝙘𝙤&𝙋𝙖𝙞𝙣𝙩   <——««  
 </p>
 
 
-
+_____________________________________
 
 # ⚠︎: Do NOT screenshot and post my skins on Pinterest or other apps without my permission. Just in case. 
 _____________________________________
