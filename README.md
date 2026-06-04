@@ -113,14 +113,13 @@ _____
 5. S3x jokes or dirty jokes(For fun please.) 
 6. Artist people!!
 7. Sensitive people(I love giving you support and solution for it. Hugs.)
-8. YUMESHIPPERS.
 _____
 # DNI. 
 
 1. MDNI. 
 2. Racist. 
 3. Homophobics. 
-4. VERY rude srs nor toxic.
+4. VERY rude srs nor Toxic.
 5. Proshippers. 
 6. P3do's. 
 7. Over 20+. 
