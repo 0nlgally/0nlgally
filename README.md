@@ -61,17 +61,17 @@ _____________________________________
 
 • If you are feeling down, dont be shy to talk about it to me, ill always be there for you.
 __________
-- 𝘐 𝘳𝘦𝘴𝘱𝘦𝘤𝘵 𝘺𝘰𝘶 𝘪𝘧 𝘺𝘰𝘶 𝘢𝘳𝘦 𝙉𝙊𝙏 𝘪𝘯𝘵𝘰 '𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘢𝘵𝘪𝘤'𝘴𝘵𝘶𝘧𝘧 𝘰𝘳 𝘢 𝘱𝘦𝘳𝘴𝘰𝘯 𝘭𝘪𝘬𝘦 𝘮𝘦- 𝘣𝘶𝘵 𝘪 𝘸𝘪𝘭𝘭 𝘮𝘢𝘬𝘦 𝘴𝘶𝘳𝘦 𝘪 𝘥𝘰𝘯𝘵 𝘵𝘢𝘬𝘦 𝘪𝘵 𝘵𝘰𝘰 𝘮𝘶𝘤𝘩 𝘵𝘩𝘢𝘵 𝘸𝘪𝘭𝘭 𝘮𝘢𝘥𝘦 𝘺𝘰𝘶 𝘰𝘷𝘦𝘳𝘸𝘩𝘦𝘭𝘮𝘦𝘥! 𝘔𝘸𝘢𝘩!
+- 𝘐 𝘳𝘦𝘴𝘱𝘦𝘤𝘵 𝘺𝘰𝘶 𝘪𝘧 𝘺𝘰𝘶 𝘢𝘳𝘦 𝙉𝙊𝙏 𝘪𝘯𝘵𝘰 '𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘢𝘵𝘪𝘤'𝘴𝘵𝘶𝘧𝘧 𝘰𝘳 𝘢 𝘱𝘦𝘳𝘴𝘰𝘯 𝘭𝘪𝘬𝘦 𝘮𝘦- 𝘣𝘶𝘵 𝘪 𝘸𝘪𝘭𝘭 𝘮𝘢𝘬𝘦 𝘴𝘶𝘳𝘦 𝘪 𝘥𝘰𝘯𝘵 𝘵𝘢𝘬𝘦 𝘪𝘵 𝘵𝘰𝘰 𝘮𝘶𝘤𝘩 𝘵𝘩𝘢𝘵 𝘸𝘪𝘭𝘭 𝘮𝘢𝘬𝘦 𝘺𝘰𝘶 𝘰𝘷𝘦𝘳𝘸𝘩𝘦𝘭𝘮𝘦𝘥! 𝘔𝘸𝘢𝘩!
 
 
 - I care too much and ill easily get anxious.
 
-- **𝘖𝘷𝘦𝘳𝘵𝘩𝘪𝘯𝘬 𝘵𝘰𝘰 𝘮𝘶𝘤𝘩 𝘣𝘺 𝘵𝘩𝘦 𝘸𝘢𝘺.**
+- **𝘖𝘷𝘦𝘳𝘵𝘩𝘪𝘯𝘬𝘴 𝘮𝘶𝘤𝘩 𝘣𝘺 𝘵𝘩𝘦 𝘸𝘢𝘺.**
 ___________
 
-• Im a **Animal Lover!** 
+•**Animal Lover!** 
 
-• I have trust issues. 
+• Trust issues. 
 
 • I have a **low term memory**, so i easily forgets! Sweats.
 
@@ -109,7 +109,7 @@ _____
 1. UT or Undertale fans!
 2. GI or Genshin Impact fans!
      • And other fandoms
-3. 12y+ above. 
+3. 13y+ above. 
 4. Yao or Yuri. 
 5. S3x jokes or dirty jokes(For fun please.) 
 6. Artist people!!
