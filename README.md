@@ -33,7 +33,7 @@ _____________________________________
 • **"Hello!"**
 - My real name is Uzziah but call me Uzi(For short) or Gal.
 
-- Im 13y.
+- Im 14y.
 
 - Birthday: July 30.
 
